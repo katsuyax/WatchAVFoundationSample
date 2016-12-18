@@ -1,0 +1,1 @@
+サウンドファイル：[魔王魂様](http://maoudamashii.jokersounds.com/)
